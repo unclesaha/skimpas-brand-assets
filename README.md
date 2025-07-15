@@ -1,1 +1,0 @@
-# skimpas-brand-assets
